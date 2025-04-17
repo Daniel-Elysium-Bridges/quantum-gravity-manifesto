@@ -54,7 +54,7 @@ A new physics. A new truth. A new world.
 
 ## Access the Mission
 
-- [Download the Manifesto (PDF)](https://drive.google.com/https://drive.google.com/file/d/12zBREPEBSBldnhEzM8G9vaeynkAyX1lw/view?usp=drivesdk)
+- [Download the Manifesto (PDF)](https://drive.google.com/file/d/12zBREPEBSBldnhEzM8G9vaeynkAyX1lw/view?usp=drivesdk)
 - [TikTok](https://tiktok.com/@elysium0100)
 - [Instagram](https://instagram.com/@elysium0100)
 - [Twitter](https://twitter.com/@Elysium91343967)
