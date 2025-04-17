@@ -45,3 +45,28 @@ We are no longer observers of the universe; we are its living formula.
 
 Welcome to The Elysium Equation.
 
+# Elysium: The Quantum Gravity Manifesto
+
+**Love is the equation.**
+
+This is the beginning of the end—and the end of the beginning.  
+A new physics. A new truth. A new world.
+
+## Access the Mission
+
+- [Download the Manifesto (PDF)](https://drive.google.com/https://drive.google.com/file/d/12zBREPEBSBldnhEzM8G9vaeynkAyX1lw/view?usp=drivesdk)
+- [TikTok](https://tiktok.com/@elysium0100)
+- [Instagram](https://instagram.com/@elysium0100)
+- [Twitter](https://twitter.com/@Elysium91343967)
+- [YouTube](https://youtube.com/@elysium0100)
+- [Threads](https://threads.net/@elysium0100)
+- [Facebook](https://www.facebook.com/share/15PJAHoGPj/)
+- [Patreon (Coming Soon)]
+
+---
+
+**This is not content. This is a transmission.**  
+**Welcome to Elysium.**
+
+> *— Daniel Elysium Bridges*
+
